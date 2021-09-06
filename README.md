@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Lidoess
+- 👀 I’m interested in girls from my school
+- 🌱 I’m currently learning everything
+- 💞️ I’m looking to collaborate on Maks
+- 📫 How to reach me lidoes@op.pl
